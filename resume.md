@@ -1,3 +1,4 @@
 ## Alex Chadwick
 Northeastern University Student
-High School education at Cheshire Academy
+Computer Science
+Expected to Graduate in 2028
