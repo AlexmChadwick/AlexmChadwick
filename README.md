@@ -1,2 +1,2 @@
 ## Hi there 👋
-Hi! I am a sohpomore at Northeastern University. Feel free to reach out!
+Hi! I am a junior at Northeastern University. Feel free to reach out!
